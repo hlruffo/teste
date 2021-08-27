@@ -1,11 +1,11 @@
-# Pão Italiano :bread:
+# Strogonoff de frango:baby_chick:
 
 ### Ingredientes
 
-- 400g Farinha
+- 400g Frango
 
-- 150 gramas de levain ativo
+- 150 gramas creme de leite 
 
-- 240 gramas de água
+- tempero a gosto
 
   ​
